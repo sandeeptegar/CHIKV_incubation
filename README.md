@@ -1,1 +1,1 @@
-# Aedes-albopictus-borne-chikungunya-in-Europe-vector-competence-and-risk
+# Temperature-sensitive incubation, transmissibility, and risk of Aedes albopictus-borne chikungunya virus in Europe.
